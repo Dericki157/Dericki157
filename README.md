@@ -1,10 +1,8 @@
-- 👋 Hi, I’m @Dericki157 
-- 👀 I’m interested in meu futuro
-- 🌱 I’m currently learning editar github
-- 💞️  
-- 📫 so vim na escola
+### Ola,  achou o pai né! HAHAHA
 
-<!---
-Dericki157/Dericki157 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+boa pns, sou o Deric
+
+ ❓ Sou aluno do 1° 
+ 😶‍🌫️ tenho 17 anos, e preetendo ficar rico na minha profição hahaha
+ 🎭 não gosto que fique de picuinha do meu lado e nem que fale de min pelas costa 
+ 🐻 
