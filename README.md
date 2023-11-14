@@ -1,4 +1,4 @@
-### Ola,  achou o pai né! HAHAHA
+### Ola,  acho o pai né! HAHAHA
 
 boa pns, sou o Deric
 
